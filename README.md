@@ -1,5 +1,12 @@
 ## All About ME! 👋
 ### Andrea Marchant - Wife/Mother of 4
+*Some important things about me:*
+- I'm a senior credit wise, but a freshman degree wise.
+- I live in Indiana.
+- Going back to school was to help my family financially.
+- Computers are something I understand more easily than other things.
+- We currently have backyard chickens that we keep for eggs.
+- Someday, I hope to create an animated TV show with my husband and kids about stories they makeup and act out.
 
 
 <!--
